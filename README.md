@@ -1,0 +1,1 @@
+# Simplified_Hand-Drawn-Curve_to_Eqn
